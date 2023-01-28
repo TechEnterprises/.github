@@ -1,7 +1,6 @@
-## Hi there 👋
+## Join the thriving community of tech entrepreneurs at Tech Enterprises and access a wealth of resources and mentorship to help your startup succeed
 
 #🙋‍♀️ 
-"Join the thriving community of tech entrepreneurs at Tech Enterprises and access a wealth of resources and mentorship to help your startup succeed."
 
 🌈 Contribution guidelines - how can the community get involved?
 
